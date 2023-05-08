@@ -10,4 +10,3 @@
  [Link to remove] (https://ibb.co/X2NVHCV)
 
 
-[Create React App](https://github.com/facebook/create-react-app)
