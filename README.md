@@ -1,4 +1,4 @@
-[ Link to list ] (https://ibb.co/HD0gH8y)
+[Link to list] (https://ibb.co/HD0gH8y)
 
 
  [Link to get] (https://ibb.co/kKyvVkR)
